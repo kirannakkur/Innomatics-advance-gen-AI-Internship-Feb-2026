@@ -1,1 +1,0 @@
-# Innomatics-advance-gen-AI-Internship-Feb-2026
